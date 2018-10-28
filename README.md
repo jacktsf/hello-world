@@ -3,5 +3,5 @@ just another repository
 
 hi jack!
 
-you just started to learn about coding it will dificult but we will achieve our goal soon.
-soon we will learn to code and we create a app of our own
+A famous man once said, 'We create our own demons.' Who said that? What does that even mean? Doesn't matter.
+I said it 'cause he said it. So now, he was famous and that basically getting said by two well-known guys. I don't, uh... I'm gonna start again.
